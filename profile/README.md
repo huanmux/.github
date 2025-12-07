@@ -1,4 +1,5 @@
-![huanmux banner](https://pbs.twimg.com/profile_banners/1377981120436858884/1761988693/1500x500)
+![huanmux banner](https://pbs.twimg.com/profile_banners/1377981120436858884/1765100487/1080x360)
+
 
 # HuanMux
 
